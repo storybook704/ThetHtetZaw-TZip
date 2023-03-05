@@ -18,7 +18,9 @@ Biography Detail Content
 
 •Official Website
 
-( Personal Information )
+
+
+(Personal Information)
 
 Personal Information  
 
